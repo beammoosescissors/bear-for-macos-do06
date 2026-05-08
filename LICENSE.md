@@ -1,4 +1,4 @@
-
+Get the ultimate Bear for macOS tool with custom Tool for Bear for macOS - calendar integration and dark mode. Featuring calendar integration and dark mode, it's the best choice
 
 
 
